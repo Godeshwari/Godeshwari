@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Godeshwari 
-- 👀 I’m interested in UI/UX and web development
+- 👀 I’m interested in learning new things 
 - 🌱 I’m currently learning Web development and UI/UX
 - 📫 How to reach me linkedIn=>www.linkedin.com/in/
 godeshwari-chavan-a896342a6
